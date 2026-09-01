@@ -7,3 +7,4 @@ I am strong!!
 I am Bold!!
 I am independent!!
 I am kind!!
+Temp changes
