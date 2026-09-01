@@ -8,3 +8,5 @@ I am Bold!!
 I am independent!!
 I am kind!!
 Temp changes
+I have Great Communication!!
+i am rich!.
